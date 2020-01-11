@@ -10,8 +10,7 @@ asd
 asd
 asdasd
 zxcasd
-asdasd
-asddas
+asd
 de
 asdasdasd
 asd
