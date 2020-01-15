@@ -15,6 +15,4 @@ asddasasd
 deasd
 asdasdasdasdasdasdasd
 asdasdasdasd
-sdfasdasdasdasd
-asdasd
 lala
